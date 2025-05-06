@@ -1,35 +1,36 @@
-# 🧠 Resolviendo Conflictos con Empatía y Respeto  
+# 🧠 Resolviendo Conflictos con Empatía y Respeto
+
 ## 📚 Semana 8 — Desarrollo Personal
 
 ---
 
 ## 💥 Parte 1: Mi reacción frente al conflicto
 
-🧯 **¿Qué tipo de conflictos enfrento más seguido?**  
-Los conflictos que enfrento con más frecuencia son emocionales y familiares. A veces me cuesta expresar lo que siento sin herir o sin cerrarme por completo, lo que complica la comunicación con las personas cercanas.
+🧯 **¿Qué tipo de conflictos enfrento más seguido?**
+Últimamente, los conflictos que más me sacuden son los internos y emocionales. A veces es como tener una tormenta en la cabeza: pensamientos, dudas y emociones que chocan sin avisar. También surgen conflictos familiares, donde las palabras no siempre encuentran el mejor tono.
 
-🗯️ **¿Cómo suelo reaccionar?**  
-Generalmente evado los conflictos. Me guardo las emociones, intento hacer como si nada pasara, pero por dentro me siento cargado y confundido.
+🗯️ **¿Cómo suelo reaccionar?**
+Mi primera reacción suele ser el silencio. Me encierro en mí mismo, creyendo que si no digo nada, el problema desaparece. Pero la verdad es que el silencio solo hace eco dentro de mí.
 
-🤯 **¿Cómo me siento después de un conflicto mal manejado?**  
-Quedo con una mezcla de tristeza, frustración y cansancio emocional. Me reprocho no haber dicho lo que sentía o haber actuado desde el impulso.
+🤯 **¿Cómo me siento después de un conflicto mal manejado?**
+Me siento agotado, como si hubiera corrido sin moverme. Hay una mezcla de culpa y tristeza que me acompaña, y una vocecita que dice: "Pudiste hacerlo mejor".
 
-🌈 **¿Qué persona admiro por cómo resuelve conflictos?**  
-Admiro a mi madre. Tiene una forma admirable de mantener la calma, expresar lo que siente con respeto y saber cuándo hablar o cuándo escuchar. Me enseña que resolver con amor es posible.
+🌈 **¿Qué persona admiro por cómo resuelve conflictos?**
+Admiro a un viejo profesor que tuve. Siempre encontraba el punto medio en las discusiones, usaba el humor con sabiduría y nunca levantaba la voz. Me enseñó que la calma también puede ser firme.
 
 ---
 
 ## 🛠️ Parte 2: Estrategia personal de resolución
 
-💬 **Frase que quiero recordar:**  
-_"Respira profundo. Responde con el corazón, no con el impulso."_ 💓
+💬 **Frase que quiero recordar:**
+*"No respondas para ganar, responde para sanar."* 🌿
 
-🤝 **Habilidad que quiero practicar:**  
-*Escucha activa* — Quiero aprender a prestar atención sin interrumpir y sin asumir, enfocándome en entender antes de hablar.
+🤝 **Habilidad que quiero practicar:**
+*Comunicación no violenta* — Quiero expresar lo que siento sin atacar, y aprender a pedir lo que necesito sin miedo ni culpa.
 
-🧪 **Próximo conflicto que puedo practicar resolver mejor:**  
-Una conversación pendiente con un amigo con quien hubo un malentendido. Esta vez quiero abordarla desde la empatía, sin culpas ni excusas.
+🧪 **Próximo conflicto que puedo practicar resolver mejor:**
+En una próxima reunión de equipo donde sé que habrá desacuerdo. En lugar de tensarme, quiero escuchar activamente, validar emociones y buscar soluciones, no culpables. 🤝✨
 
 ---
 
-🌟 *Gracias por leer. Este es un pequeño paso hacia una mejor versión de mí.* ✨
+🚀 *Este proceso es parte de mi crecimiento. Cada paso que doy, aunque pequeño, me acerca a ser una persona más empática y consciente.* 💫
